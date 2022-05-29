@@ -1,4 +1,4 @@
-# Keygen srecoder.
+# Keygen srecoder plus PSD.
 
 #### Written in 2010.
 
